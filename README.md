@@ -1,4 +1,4 @@
-[googlef08c72267d0abdd9 (2).html](https://github.com/user-attachments/files/24014942/googlef08c72267d0abdd9.2.html)परिचय
+परिचय
 
 आज इंडिया में हर कोई घर बैठे पैसे कमाने के तरीके खोज रहा है।
 स्कूल के स्टूडेंट हों या नौकरी करने वाले, हर कोई extra income चाहता है।
